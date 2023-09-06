@@ -1,0 +1,2 @@
+- Use fertilizer high in potassium, or potash fertilizer
+- Use compost made primarily from food byproducts

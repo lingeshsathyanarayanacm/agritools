@@ -1,0 +1,3 @@
+- Use products with low or no potassium
+- Sift the soil and remove as many rocks as possible
+- Flush the soil with fresh water, ensuring water is drained away
